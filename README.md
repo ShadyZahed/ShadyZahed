@@ -8,6 +8,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ... AwS
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... shady.zahed@gmail.com
-- 😄 Pronouns: ...
 - ⚡ Fun fact: ... I am the real slim Shady
 
